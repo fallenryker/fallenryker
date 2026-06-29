@@ -1,1 +1,1 @@
-hii ! i'm ryker. use he/him. i'm 16!<br>i usually hang out on safe or russian safe #1 (rarely). feel free to interact, hug, etc!! im comfy with that<br>please be polite tyy!!
+hii ! i'm ryker. use he/him. i'm 16!<br>i usually hang out on safe or russian safe #1 (rarely). feel free to interact, hug, etc!! im comfy with that<br>please be polite tyy!!<br>i'm currenly in deltarune fandomm
