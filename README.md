@@ -1,2 +1,2 @@
 hii ! i'm ryker. use he/him. i'm 16!<br>i usually hang out on safe or russian safe #1 (rarely). feel free to interact, hug, etc!! im comfy with that<br>please be polite tyy!!<br>i'm currenly in deltarune fandom. i support kris = knight theory HEAVILY srry<br>
-![alt text](https://blinkies.cafe/b/display/0084-agender.gif)
+![alt text](https://blinkies.cafe/b/display/0084-agender.gif) ![alt text](https://y2k.neocities.org/blinkiez/newbatch/I7SMs33.gif)
