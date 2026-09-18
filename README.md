@@ -8,6 +8,6 @@ Retrieved 2026-09-11, License - CC BY-SA 4.0
   <img src="https://github.com/fallenryker/gif-cruel/blob/main/block-tales-cruel-king.gif" />
 </p>
 <div>
-  <p align="center"> i follow back only if you follow me on your main account. spam accounts will be ignored </p>
+  <p align="center"> i follow back only if you follow me on your main account. spam accounts will be ignored and i request them do not follow (pls)</p>
 </div>
 
