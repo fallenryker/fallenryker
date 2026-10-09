@@ -19,7 +19,6 @@
   <img src="https://i.pinimg.com/1200x/6e/c2/f8/6ec2f847c87d0f8eaa4f2676c48561ed.jpg" width="200" />
   <img src="https://i.pinimg.com/1200x/18/ba/86/18ba86cd04ff9de64633b5c405c330e4.jpg" width="200" /> 
   <img src="https://i.pinimg.com/1200x/10/f5/32/10f53249cf43ee8cf924aa65384db2f4.jpg" width="200" />
-  <img src="https://i.pinimg.com/1200x/b5/9b/38/b59b38a9f32bb858a63a022948c23ae3.jpg" width="200" />
   <img src="https://i.pinimg.com/1200x/94/b3/cc/94b3cc635fa1f3ca4625abeeefa1fc2c.jpg" width="200" />
   <img src="https://i.pinimg.com/1200x/b4/b5/d2/b4b5d2fd70080eafba8d4e395fa1ee16.jpg" width="200" />
   <img src="https://i.pinimg.com/1200x/93/a2/71/93a271c0671b00e8cb7f0d4e49113a04.jpg" width="200" />
